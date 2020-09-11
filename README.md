@@ -1,2 +1,2 @@
 cool beans
-cool cool beans cool cool beans beans
+cool cool beans beans cool beans
